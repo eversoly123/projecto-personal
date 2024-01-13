@@ -1,3 +1,3 @@
 # projecto-personal
 
-Creadpo por
+Creado por
